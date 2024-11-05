@@ -1,4 +1,5 @@
-<meta name="google-site-verification" content="<meta name="google-site-verification" content="t6JUaH7MUoEXztTjO2b5Dz2-FzSJM9IYcBp-cil3FTU" />" />
+## Certifications
+[View Google Certification](googleb0cf24e7ce6a13b5.html)
 IW777 Apk 7.1 ( Login) Unduh Versi Terbaru untuk Android
 Unduh: IW777 Apk
 Screenshot_12
